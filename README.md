@@ -1,4 +1,4 @@
 # Welcome to my personal homepage
 
 ## Name：Yikang Yang
-## Mail: ykyang203922@gmail.com
+## Mail: 20254227097@stu.suda.edu.cn 
